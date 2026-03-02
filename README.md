@@ -1,5 +1,6 @@
 Violet, V, sometimes Viola  
-I'm actually a system!! if I'm using this github, it means everyone's fronting and extremely blurry, so consider us one person  
+I'm actually a system!! if I'm using this github, it means everyone's fronting and extremely blurry, so consider us one person 
+18 y/o  
 
 hypersharing yumeshipper!!!! my only romantic f/o is elliot builder, specifically his forsaken variant :)  
 pleeeease do not intentionally sexualise my other f/os in front of me tankyouuu  
