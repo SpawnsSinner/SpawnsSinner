@@ -1,9 +1,10 @@
-Violet, V, sometimes Viola  
-I'm actually a system!! if I'm using this github, it means everyone's fronting and extremely blurry, so consider us one person  
-18 y/o
+Violet, V, sometimes Viola or Nightshade  
+18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
+i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
+^ canon two time is a *Spawn cultist* and not part of the real religion. remember this.  
 
-hypersharing yumeshipper!!!! my only romantic f/o is elliot builder, specifically his forsaken variant :)  
-pleeeease do not intentionally sexualise my other f/os in front of me tankyouuu  
+hypersharing yumeshipper!!!! my only romantic f/o is elliot builder's forsaken variant :)  
+pleeeease do not intentionally sexualise my other f/os in front of me tankyou   
 
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
@@ -28,7 +29,7 @@ pleeeease do not intentionally sexualise my other f/os in front of me tankyouuu
 - under 16
 - Spawn cultists & anti-Spawnists
 - murder drones fandom  
-- forsaken fandom
+- forsaken fandom, excluding kin/fictives/etc  
 - radqueers
 - tcc
 - heavy discoursers
