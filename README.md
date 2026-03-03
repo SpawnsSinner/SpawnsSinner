@@ -10,6 +10,8 @@ pleeeease do not intentionally sexualise my other f/os in front of me tankyou
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
 ⛔ - nonverbal. you can still walk up and boop me/talk to me, though!! i just won't respond with words  
 
+[pronouns.cc](https://pronouns.cc/@SpawnSynner)  
+  
 ## Interests *?*
 *favs/comf are **bold***
 - **Resident Evil**  
