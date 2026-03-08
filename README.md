@@ -5,7 +5,8 @@ i am Spawnist and a two time copinglinker!! specifically their nightshade skin
 ^ canon two time is a *Spawn cultist* and not part of the real religion. remember this.  
 
 hypersharing yumeshipper!!!! my only romantic f/o is elliot builder's forsaken variant :)  
-pleeeease do not intentionally sexualise my other f/os in front of me tankyou   
+^ the pink flag on my f/os is the **sharing yume** flag, in case you were wondering  
+pleeeease do not intentionally sexualise leon kennedy in front of me tankyou   
 
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
