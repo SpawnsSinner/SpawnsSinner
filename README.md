@@ -1,4 +1,4 @@
-## C+H WELCOME FOR FRIENDS AND RE PONIES ONLY
+## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
 Violet, V, sometimes Viola or Nightshade  
 18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
 i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
