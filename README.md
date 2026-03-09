@@ -1,5 +1,4 @@
 Violet, V, sometimes Viola or Nightshade  
-migrating to this github ^^  
 18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
 i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
 ^ canon two time is a *Spawn cultist* and not part of the real religion. remember this.  
@@ -11,7 +10,7 @@ pleeeease do not intentionally sexualise leon kennedy in front of me tankyou
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
 ⛔ - nonverbal. you can still walk up and boop me/talk to me, though!! i just won't respond with words  
-
+if my pony is sleeping, chances are i'm asleep irl too  
 [pronouns.cc](https://pronouns.cc/@SpawnSynner) / [rentry](https://rentry.co/spawnsynner) / [sign straw](https://spawnsinner.straw.page/)  
   
 ## Interests *?*
