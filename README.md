@@ -1,9 +1,10 @@
 ## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
+### if you have a problem with Me, take it up with Me. don't pester My friends about it
 Violet, Syn, or Nightshade  
 18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
 i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
 ^ canon two time is a *Spawn cultist* and not part of the real religion which dates back to at least 2016. remember this.  
-**do not bring up predators' real-life Spawn cult(s) to Me. it's mildly irritating *at best.***
+**do not bring up predators' real-life Spawn cult(s) to Me. it's mildly irritating *at best.***   
 
 hypersharing yumeshipper!!!! my only romantic f/o is elliot builder's forsaken variant :)  
 if you're wondering what any of the flags on my ponies are, they can all be found on my pronouns.cc  
