@@ -7,6 +7,7 @@ i am Spawnist and a two time copinglinker!! specifically their nightshade skin
 hypersharing yumeshipper!!!! my only romantic f/o is elliot builder's forsaken variant :)  
 if you're wondering what any of the flags on my ponies are, they can all be found on my pronouns.cc  
 pleeeease do not intentionally sexualise leon kennedy in front of me tankyou   
+### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
