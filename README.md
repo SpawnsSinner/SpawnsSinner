@@ -1,5 +1,5 @@
 ## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
-### if you have a problem with Me, take it up with Me. don't pester My friends about it
+### if you have a problem with Me, take it up with Me. don't pester My friends about it okay? okay.
 Violet, Syn, or Nightshade  
 18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
 i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
