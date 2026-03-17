@@ -4,10 +4,10 @@ Violet, Syn, or Nightshade
 18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
 i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
 ^ canon two time is a *Spawn cultist* and not part of the real religion which dates back to at least 2016. remember this.  
-**do not bring up predators' real-life Spawn cult(s) to Me. it's mildly irritating *at best.***   
-
-hypersharing yumeshipper!!!! my only romantic f/o is elliot builder's forsaken variant :)  
-if you're wondering what any of the flags on my ponies are, they can all be found on my pronouns.cc  
+**do not bring up predators' real-life Spawn cult(s) to Me. it's mildly irritating *at best.* and triggering at worst**  
+I rarely leave the spawn area. if I'm not there, I'm probably on My party's island or hiding in offline mode   
+   
+hypersharing yumeshipper!!!!   
 pleeeease do not intentionally sexualise leon kennedy in front of me tankyou   
 ### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
