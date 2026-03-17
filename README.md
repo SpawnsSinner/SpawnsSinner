@@ -8,7 +8,7 @@ i am Spawnist and a two time copinglinker!! specifically their nightshade skin
 I might come off as distant at first. that's normal, it's not because I'm upset at you. I'm focused primarily on My f/os.     
    
 hypersharing yumeshipper!!!!   
-pleeeease do not intentionally sexualise leon kennedy in front of me tankyou   
+pleeeease do not intentionally sexualise leon kennedy in front of Me tankyou   
 ### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
 🟢 - actively looking at pt!! probably whispering someone  
