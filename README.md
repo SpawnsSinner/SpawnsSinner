@@ -13,7 +13,7 @@ pleeeease do not intentionally sexualise leon kennedy in front of me tankyou
 
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
-⛔ - nonverbal. you can still walk up and boop me/talk to me, though!! i just won't respond with words  
+⛔ - nonverbal or just not in a talking mood. you can still sit with Me though!     
 if my pony is sleeping, chances are i'm asleep irl too  
 ### [main straw](https://spawnsynner.straw.page/) / [pt straw](https://spawnsinner.straw.page/) / [current fronter?](https://pluralkit.xyz/f/wxtdb)  
   
