@@ -1,9 +1,6 @@
 ## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
 ### if you have a problem with Me, say it to My face. quit harassing My friends about it.
 Violet, Syn, Rookie or Nightshade!! 18 y/o, plural she/her preferred   
-i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
-^ canon two time is a *Spawn cultist* and not part of the real religion which dates back to at least 2016. remember this.  
-**do not bring up predators' real-life Spawn cult(s) to Me. it's mildly irritating *at best.* and triggering at worst**  
 I might come off as distant at first. that's normal, it's not because I'm upset at you. I'm focused primarily on My f/os and My party.     
    
 hypersharing yumeshipper!!!! Ada Wong doubles please int hi   
