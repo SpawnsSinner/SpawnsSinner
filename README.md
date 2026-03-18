@@ -9,6 +9,7 @@ I might come off as distant at first. that's normal, it's not because I'm upset 
    
 hypersharing yumeshipper!!!!   
 pleeeease do not intentionally sexualise leon kennedy in front of Me tankyou   
+also do not interpret My interactions using his pony or the plushies I give him as ships </3 I dislike all leon ships   
 ### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
 🟢 - actively looking at pt!! probably whispering someone  
