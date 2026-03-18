@@ -1,15 +1,14 @@
 ## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
 ### if you have a problem with Me, say it to My face. quit harassing My friends about it.
-Violet, Syn, or Nightshade  
-18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
+Violet, Syn, Rookie or Nightshade!! 18 y/o, plural she/her preferred   
 i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
 ^ canon two time is a *Spawn cultist* and not part of the real religion which dates back to at least 2016. remember this.  
 **do not bring up predators' real-life Spawn cult(s) to Me. it's mildly irritating *at best.* and triggering at worst**  
 I might come off as distant at first. that's normal, it's not because I'm upset at you. I'm focused primarily on My f/os and My party.     
    
-hypersharing yumeshipper!!!!   
-pleeeease do not intentionally sexualise leon kennedy in front of Me tankyou   
-also I disike all ships involving leon. do not interpret My interactions or My plushies as a ship   
+hypersharing yumeshipper!!!! Ada Wong doubles please int hi   
+pleeeease do not intentionally sexualise Leon Kennedy in front of Me tankyou   
+I disike all ships involving Leon. do not interpret My interactions or My plushies as a ship ever   
 ### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
 🟢 - actively looking at pt!! probably whispering someone  
@@ -21,7 +20,7 @@ if my pony is sleeping, chances are i'm asleep irl too
 ## Interests *?*
 *favs/comf are **bold***
 - **Resident Evil**  
-- Borderlands
+- **Borderlands**
 - ROBLOX
 - **Rock Band 3/4/Green Day**
 - **Killing Floor**
@@ -47,6 +46,7 @@ if my pony is sleeping, chances are i'm asleep irl too
 
 ## Thin Ice / IWC *?*
 - postal fandom
+- aeon & chrisker shippers
 - metalocalypse fandom
 - ultrakill fandom
 - under 18
