@@ -4,7 +4,6 @@ Violet, Syn, Rookie or Nightshade!! 18 y/o, plural she/her preferred
 I might come off as distant at first. that's normal, it's not because I'm upset at you. I'm focused primarily on My f/os and My party.     
    
 hypersharing yumeshipper!!!! Ada Wong doubles please int hi   
-pleeeease do not intentionally sexualise Leon Kennedy in front of Me tankyou   
 I disike all ships involving Leon. do not interpret My interactions or My plushies as a ship ever   
 ### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
@@ -32,6 +31,7 @@ if my pony is sleeping, chances are i'm asleep irl too
 
 ## DNI *?*
 - under 16
+- RE fans that are gross about Leon I do **NOT** wanna see it
 - Spawn cultists & anti-Spawnists
 - murder drones fandom  
 - forsaken fandom, excluding kin/fictives/etc  
