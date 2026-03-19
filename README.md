@@ -12,7 +12,7 @@ I disike all ships involving Leon. do not interpret My interactions or My plushi
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
 ⛔ - nonverbal or just not in a talking mood. you can still sit with Me though!     
 if my pony is sleeping, chances are i'm asleep irl too  
-### [main straw](https://spawnsynner.straw.page/) / [pt straw](https://spawnsinner.straw.page/) / [current fronter?](https://pluralkit.xyz/f/wxtdb)  
+### [main straw](https://spawnsynner.straw.page/) / [current fronter?](https://pluralkit.xyz/f/wxtdb)  
   
 ## Interests *?*
 *favs/comf are **bold***
