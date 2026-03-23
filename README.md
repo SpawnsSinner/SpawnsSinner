@@ -3,8 +3,9 @@
 Violet, Syn, Rookie or Nightshade!! 18 y/o, plural she/her preferred   
 I might come off as distant at first. that's normal, it's not because I'm upset at you. I'm focused primarily on My f/os and My party.     
    
-hypersharing yumeshipper!!!! Ada Wong doubles please int hi   
+hypersharing yumeshipper w/ all f/os except Leon Kennedy, Ada Wong & swap!Niko Elliott   
 I disike all ships involving Leon. do not interpret My interactions or My plushies as a ship ever   
+I have a fuckton of people blocked + half of the re area has *me* blocked, if I'm sitting on someone, that's why.
 ### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
 🟢 - actively looking at pt!! probably whispering someone  
