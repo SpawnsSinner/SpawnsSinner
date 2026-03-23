@@ -5,7 +5,7 @@ I might come off as distant at first. that's normal, it's not because I'm upset 
    
 hypersharing yumeshipper w/ all f/os except Leon Kennedy, Ada Wong & swap!Niko Elliott   
 I disike all ships involving Leon. do not interpret My interactions or My plushies as a ship ever   
-I have a fuckton of people blocked + half of the re area has *me* blocked, if I'm sitting on someone, that's why.
+I have a fuckton of people blocked + half of the re area has *Me* blocked, if I'm sitting on someone, that's why.
 ### island built limit whisper = block. I am already in a party and am not interested in leaving it.
 
 🟢 - actively looking at pt!! probably whispering someone  
