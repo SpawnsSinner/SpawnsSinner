@@ -1,7 +1,7 @@
 ## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
 ### if you have a problem with Me, say it to My face. quit harassing My friends about it.
 Violet, Syn, or Rookie!! 18 y/o, plural she/her preferred   
-please do not vent to Me unless I offer to listen. comforting people doesn't come naturally to Me and I'll only try for certain people.   
+please do not vent to Me unless I offer to listen. comforting others doesn't come naturally to Me and I'll only try for certain people.   
    
 hypersharing yumeshipper w/ all f/os except Leon Kennedy, Ada Wong & swap!Niko Elliott   
 I disike all ships involving Leon. do not interpret My interactions or My plushies as a ship ever   
