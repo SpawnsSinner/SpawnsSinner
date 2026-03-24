@@ -11,7 +11,7 @@ I have a fuckton of people blocked. if I'm sitting on someone, that's probably w
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
 ⛔ - nonverbal or just not in a talking mood. you can still sit with Me though!     
-if my pony is sleeping, chances are i'm asleep irl too  
+if My pony is sleeping, chances are I'm asleep irl too  
 ### [main straw](https://spawnsynner.straw.page/) / [current fronter?](https://pluralkit.xyz/f/wxtdb)  
   
 ## Interests *?*
