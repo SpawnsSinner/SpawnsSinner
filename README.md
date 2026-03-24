@@ -1,12 +1,12 @@
 ## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
 ### if you have a problem with Me, say it to My face. quit harassing My friends about it.
-Violet, Syn, Rookie or Nightshade!! 18 y/o, plural she/her preferred   
-I might come off as distant at first. that's normal, it's not because I'm upset at you. I'm focused primarily on My f/os and My party.     
+Violet, Syn, or Rookie!! 18 y/o, plural she/her preferred   
+please do not vent to Me unless I offer to listen. comforting people doesn't come naturally to Me and I'll only try for certain people.   
    
 hypersharing yumeshipper w/ all f/os except Leon Kennedy, Ada Wong & swap!Niko Elliott   
 I disike all ships involving Leon. do not interpret My interactions or My plushies as a ship ever   
-I have a fuckton of people blocked + half of the re area has *Me* blocked, if I'm sitting on someone, that's why.
-### island built limit whisper = block. I am already in a party and am not interested in leaving it.
+I have a fuckton of people blocked. if I'm sitting on someone, that's probably why.
+### island build limit whisper = block. I am already in a party and am not interested in leaving it.
 
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
