@@ -6,7 +6,8 @@ I have a **lot** of people blocked. if I'm sitting on someone, that's probably w
    
 hypersharing yumeshipper w/ all f/os except Leon Kennedy, Ada Wong & swap!Niko Elliott   
 I disike all ships involving Leon. do not interpret My interactions or My plushies as a ship ever   
-### island build limit whisper = block. I am already in a party and am not interested in leaving it.
+### island build limit whisper = block. I am already in a party and am not interested in leaving it.  
+We generally stay away from slenderverse fans. We'll only ever sit in the creepypasta area with a close friend of Our system. **emh & mh fandom please still dni !!**
 
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
