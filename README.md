@@ -18,7 +18,8 @@ if My pony is sleeping, chances are I'm asleep irl too
   
 ## Interests *?*
 *favs/comf are **bold***
-- **Resident Evil**  
+- **Resident Evil**
+- **Deadlock**
 - **Borderlands**
 - ROBLOX
 - **Rock Band 3/4/Green Day**
