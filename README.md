@@ -8,7 +8,7 @@ I disike all ships involving Leon. do not interpret My interactions or My plushi
 ### island build limit whisper = block. I am already in a party and am not interested in leaving it.  
 We generally stay away from slenderverse fans and will only ever sit in the creepypasta area with our partners.   
 **emh & mh fandom please still dni !!** fictives/fictkin are okay.   
-any ponies We use with a queerplatonic flag are based on the fictives in Our qpp system, please be respectful   
+any ponies We use with a queerplatonic flag are **not f/os,** they're based on the fictives in Our qpp system, please be respectful   
 
 🟢 - actively looking at pt!! probably whispering someone  
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
