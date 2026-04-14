@@ -1,7 +1,6 @@
 ## C+H WELCOME FOR FRIENDS AND RESIDENT EVIL PONIES ONLY
 Violet, Syn, or Rookie!! 18 y/o, plural she/her preferred   
 I have a **lot** of people blocked. if I'm ever sitting on someone, that's probably why.   
-   
 sharing yumeshipper w/ most f/os except Leon Kennedy, Ada Wong & swap!Niko Elliott    
 ### island build limit whisper = block. I am already in a party and am not interested in leaving it.  
 I generally stay away from slenderverse fans and will only ever sit in the creepypasta area with My partners.   
