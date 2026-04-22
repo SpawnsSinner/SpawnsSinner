@@ -11,7 +11,7 @@ any ponies I use with a [queerplatonic flag](https://lgbtqia.fandom.com/wiki/Que
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
 ⛔ - nonverbal or just not in a talking mood. you can still sit with Me though!     
 if My pony is sleeping, chances are I'm asleep irl too  
-### [main straw](https://spawnsynner.straw.page/) / [current fronter?](https://pluralkit.xyz/f/wxtdb)  
+### [rentry](https://rentry.co/zoochotics) / [current fronter?](https://pluralkit.xyz/f/wxtdb) / [straw](https://spawnsynner.straw.page/)
   
 ## Interests *?*
 *favs/comf are **bold***
